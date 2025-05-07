@@ -1,2 +1,4 @@
-# heinous-shell
-was trying to do programming idk lmao 
+1 star and i am writing a propper docs lol
+
+
+![pic](https://imgur.com/a/fXZxPUG)
