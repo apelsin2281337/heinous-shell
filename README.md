@@ -1,4 +1,4 @@
 1 star and i am writing a propper docs lol
 
 
-![pic](https://imgur.com/a/fXZxPUG)
+![pic](https://i.imgur.com/bW3nmVZ.png)
